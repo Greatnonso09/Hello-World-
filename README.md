@@ -1,1 +1,2 @@
-# Hello-World-
+My name is Ichoku Great Chononso. I want to be a world class developer thats why I used all my money to pay for this program, "Tribe Nigeria Accelerator". I started coding 2015, my first year in tertiary institute but I wasn't constitent now am struggling to even come up with ideas. I have alot in my head but the problem is must times how to express my ideas, I am an introvert and have also had issues saying my mind rather I always go with what the crowd suggests. I pray this program helps me bring out that bad ass software developer in me.
+Thats myself
